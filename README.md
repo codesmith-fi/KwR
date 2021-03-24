@@ -6,7 +6,7 @@ The point is:
 
 New community - Knights who RPG - A new xRPG discord community starting up, not just ARPGs - we need you
 
-I am a active member in many xRPG communities and want do my part. So if you are interested please stay a while and listen. I am forming a new xRPG (cRPG) community and I would like to get it started. We already have some active members discussing from gaming to game development. And of course, like an engineer what I am I want more <3 I am building a Discord based community for talking and sharing knowledge about computer and perhaps also NON-computer based Role Playing Games (RPGs).
+I am a active member in many xRPG communities and want do my part. So if you are at all interested please stay a while and listen. I am forming a new mature xRPG (cRPG) community and I would like to get it started. We already have some active members discussing from gaming to game development. And of course, like an engineer what I am I want more <3 I am building a Discord based community for talking and sharing knowledge about computer and perhaps also NON-computer based Role Playing Games (RPGs).
 
 Most immediately think that I mean Action RPGS. No, there are many good Discord servers already that cover that part. I want this new community not only to be related to Action RPGs but many other types as well. I want to be more general, focusing to xRPGs where x means that the type, platform or playstype is not predefined by just joining to my server. My server, itsounds bad, it will be OUR server, I am not gaining anything in this except friendship, disussion and fun time. I am hoping to partnership with the major ARPG Discord groups and bring our forces together. We will see.
 
