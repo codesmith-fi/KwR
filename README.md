@@ -23,10 +23,10 @@ So give me and this new discord group a chance. Let's build it up, together.
 Here are the important details,
 
 Server is named. Knights who RPG so in short KwR.
-Join link: https://discord.gg/pZ244a5A
+Join link: https://discord.gg/P4Uu3GU7tx
 
 You could also inform your friends.
 
 I am by no means trying to make a competitive community to other RPG Discord communities, I am just trying to get another group going on. I love to talk with people.
 
-Yours, Xanaki
+Yours, xanaki aka codesmith_fi in github
